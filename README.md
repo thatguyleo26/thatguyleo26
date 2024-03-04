@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+My name is Leonardo but you can call me Leo. I am based in Miami, FL and looking to grow in the programming field.
+I can't wait to collaborate and meet new people!!
+
+Feel free to contact me at thatguynamedleo26@gmail.com
+
+Have a great day!! 😄
